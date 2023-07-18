@@ -1,1 +1,0 @@
-# Bookself-apps
